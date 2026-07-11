@@ -10,7 +10,7 @@
 | [20260121_122652.jpg](https://raw.githubusercontent.com/20minsmusic/blog/main/2026九州家族旅遊Day4/20260121_122652.jpg) | image | 449.2 KB | 1.9 MB | 2026-07-11 |
 | [20260121_170107.jpg](https://raw.githubusercontent.com/20minsmusic/blog/main/2026九州家族旅遊Day4/20260121_170107.jpg) | image | 426.3 KB | 2.2 MB | 2026-07-11 |
 | [20260121_170121.jpg](https://raw.githubusercontent.com/20minsmusic/blog/main/2026九州家族旅遊Day4/20260121_170121.jpg) | image | 490.8 KB | 2.0 MB | 2026-07-11 |
-| [20260121_171004.jpg](https://raw.githubusercontent.com/20minsmusic/blog/main/2026九州家族旅遊Day4/20260121_171004.jpg) | image | 258.2 KB | 2.9 MB | 2026-07-11 |
+| [20260121_171004.jpg](https://raw.githubusercontent.com/20minsmusic/blog/main/2026九州家族旅遊Day4/20260121_171004.jpg) | image | 719.5 KB | 2.9 MB | 2026-07-11 |
 | [IMG_0685.JPG](https://raw.githubusercontent.com/20minsmusic/blog/main/2026九州家族旅遊Day4/IMG_0685.JPG) | image | 663.8 KB | 9.5 MB | 2026-07-11 |
 | [IMG_0689.JPG](https://raw.githubusercontent.com/20minsmusic/blog/main/2026九州家族旅遊Day4/IMG_0689.JPG) | image | 452.1 KB | 5.3 MB | 2026-07-11 |
 | [IMG_0691.JPG](https://raw.githubusercontent.com/20minsmusic/blog/main/2026九州家族旅遊Day4/IMG_0691.JPG) | image | 648.9 KB | 7.7 MB | 2026-07-11 |
